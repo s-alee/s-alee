@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @s-alee
-- 📫 How to reach me: salmaalee118@gmail.com or www.linkedin.com/in/salmaalee111
+👋 Hi, I’m @s-alee
+📫 How to reach me: salmaalee118@gmail.com or www.linkedin.com/in/salmaalee111
 
 
 <!---
